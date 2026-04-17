@@ -14,7 +14,7 @@ It's funny, my roommate doesn't really speak any English, nor I Spanish, so even
 
 I could have brought more appropriate gear too, though I didn't really have the money for it. I have that plate carrier I found in the donation area from my Florida studio apartment, which is awesome. I'm sure they'll give me plates after boot.
 
-I wonder how boot camp will go if we all can't understand each other. Anyway, they brought me some food: rice with gravy and carrots, beats, and some protein thing that sort of reminds me of a hush puppy. It's the most I've eaten in days, and I enjoyed it. I saved some from breakfast. There's a microwave on a table in the corner--no clue if it works.
+I wonder how boot camp will go if we all can't understand each other. Anyway, they brought me some food: rice with gravy and carrots, beets, and some protein thing that sort of reminds me of a hush puppy. It's the most I've eaten in days, and I enjoyed it. I saved some from breakfast. There's a microwave on a table in the corner--no clue if it works.
 
 Well, I wanted an interesting life, and this sure is interesting. Just a few more things to worry about. For one example, I almost always fail blood pressure tests when I'm nervous (which I am). I think I'm strong enough now, but I need to get stronger. Maybe I'm just tired.
 
