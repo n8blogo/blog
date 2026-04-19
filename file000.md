@@ -1,6 +1,7 @@
 Why am I here..?
 
  1. Childhood
+    
 I grew up near a small town on a road that originally had no name. I know that sounds cliche, but look up Tyro, NC near Welcome (yes, really) near Lexington and Winston-Salem. After moving out of a trailer park into a modest home just down the road, mail addressed to our residence was technically a PO Box. Dad worked, Mom raised my sister and I. My mother's sister and her family, which included two children, lived nearby. The eight of us and two Grandmothers were a tightly knit family. 
 
 We were raised very religiously. When we weren't at a private Christian school or at church, we were either at home or with my cousins. At least, that's how I remember it. I was the oldest of the four children. Our world was small, isolated, but safe. Aside from the above, I mostly remember playing in my room with legos, tinkering with electrical circuits or anything else I could get my hands on, or reading sci-fi and comic books. I read the entire Encyclopedia one summer.
@@ -8,6 +9,7 @@ We were raised very religiously. When we weren't at a private Christian school o
 At this point, after all that's happened since, I don't remember too much because... nothing bad happened. I remember getting a surprise gift of a bicycle for my birthday one year. I practically lived on that thing thereafter. I recall spending a lot of time with the neighbor's kids outside and exploring the woods and fields around the house. 
 
  2. Seventh Grade
+
 Dad was an engineer and brought home a 286 PC one day. This was pretty rare in our stratum and location for the time. I learned everything I could about it, never getting enough. One day at school, I found a floppy disk under the benches in the gym. It's important to know that at this point I hated pen and paper because I could type quite fast, and Dad also had a printer and a plotter to go with our PC. You should also know that in school the teachers used transparency paper and a projector to display the notes we were supposed to take by hand every day in class. On this disk were all the notes for science class for the rest of the year. I, being naive, cheerfully printed them out, punched holes in them, slapped them into my notebook, and sat in class happily watching the teacher as everyone else had their nose down writing their notes. I offered a copy to a "friend" who ratted me out. I had always had good grades and didn't feel like I had stolen anything that wasn't freely given. The teacher had clearly dropped it one day, and one of my problems were miraculously solved!
 
 The administration didn't see it that way. They told my parents they were going to fail me for the year, and I would have to go to summer school to make it up. My father told them they were the idiots and just wanted more money. They pulled me and my sister out and put us in the local public school.
@@ -25,6 +27,7 @@ I had gotten my grades up again. I had a fast car, a hot girl, my own computer, 
 Life was grand.
 
  3. Parent's Divorce
+    
 My parents, by all outward appearances, were a model couple. Affectionate, polite, patient, gentle, generous, successful--all of that. They never argued in front of anyone, much less had fights. My friends would often tell me they were envious of my home life because of them. Dad went to night school and got a promotion or two. More foreshadowing. We moved into a grander home made of brick with two floors and a basement/two car garage in a nice development. When my friends hung out, it was always at our place. 
 
 One day, our parents sat my sister and I down in the living room and told us they were getting divorced. Mom was moving out and taking my sister, while I was going to stay with Dad. To say we were shocked didn't cover it. Everyone was. My friends didn't believe me at first. 
@@ -34,6 +37,7 @@ Anyway, I was largely unsupervised after that. Dad was out there rediscovering h
 Life was grand.
 
  4. Christina
+    
 I stole one of my friends girls, at least that's how he would describe it, named Christina. I don't remember it that way, besides, she has free will. She was a gymnast. Short, fit, and really just absolutely gorgeous. She could hang with the boys, and they liked her being around. She was also 16.
 
 She wasn't on birth control and I'd never even seen a condom. I got her pregnant fairly quickly somewhere around my high school graduation. I thought the honorable thing to do was to enlist, instead of chasing a commission, and marry her. Somehow, we talked her not-too-bright mother into emancipating her. She dropped out of school. We got married at the J.o.P. and off I went to boot camp. While in boot, I received a letter from her that she had gone to an abortion clinic. I was fairly devastated. Well, it was too late now so once I got my first assignment, we got an appartment and pretended to play house like real adults. 
@@ -41,6 +45,7 @@ She wasn't on birth control and I'd never even seen a condom. I got her pregnant
 Things were going alright. We eventually got a house on base and were adjusting to life in Las Vegas, far from friends and family. She became pregnant again, and delivered my first child, so she never went back to school.
 
  5. 1st Divorce
+    
 9/11 happened while I was TDY in Ohio. The base was locked down while I was in town so I ended up at a fellow classmates house nearby, a civilian woman taking the same course I was there for. Two very bad things happened as a result. My 1st Sergeant thought I went AWOL, and I cheated on my wife with said woman.
 
 When I got back to Nellis, wracked with guilt, I confessed my sin to Christina. We had been married twenty whole, entire months at this point. The marriage never recovered, we were still just kids at this point, remember. It turns out Nevada is the divorce capital of the country, probably the world. You can get the whole thing done in a day or two. I encouraged her to return to her mother and go back to school. I don't really blame her for not doing so, being so pretty she made more money in a weekend there than I did as an E-3 in a month.
@@ -51,6 +56,7 @@ One my cousins became my room mate and with all my new free time we found ways t
 
 
  6. Stefany
+    
 Since I couldn't un-cheat or un-say what I did to Christina, I decided I was going to get Stefany back. I had no idea what happened to Stefany after we broke up back in high school, or how to find her. This was the era before social media, mind you. I tracked down her mother and begged her to pass along my number. She called me fairly soon after. She was seeing some Army guy, but it apparently wasn't going well. I begged her to get in her car and drive out to Vegas.
 
 She did. My friends and family's opinion of her hadn't changed so we eloped downtown and informed everyone afterwards. I had my high school sweetheart back and had, in my mind, to the best of my ability, corrected the heading of my life. My cousin left for the Navy and I got orders to Spokane.
@@ -61,10 +67,12 @@ My four years were up, and I reenlisted. I was a sergeant and supervising the ne
 
 
  7. Civilian Life
+    
 So it was that I was honorably discharged. We moved back to NC and rented a townhouse near my mother and grandmother. I eventually got a job in an IT department at a transportation company in the next town over. I was making more money, but everything cost more so it was kind of a wash. I did, however, love my job. I had a lot of leeway with engineering things and felt like I had even better opportunities ahead of me. Stefany was happy to be a homemaker and was quite good at it. Taking a page from my father's book (I didn't quite connect the dots here at the time, obviously) I went to night school to make said opportunities manifest. Life consisted of work, school, and sleep. My wife and I hardly saw each other. I barely knew my children. I'm sure you can see where this is going.
 
 
- 8. 2nd Divorce
+ 9. 2nd Divorce
+     
 The one betrayal I would not tolerate from my lot in life at this point was infidelity. Fairly pompous coming from me, I know, but it was kind of the contract Stefany and I had talked about. After a few semesters of school and life going like this for us, she said she needed a break. Her plan, as she described it to me, was to go south for a girls weekend or something. I didn't even know who these "girls" were, but that didn't surprise me at all, as I barely knew her life anymore anyhow. It sounded fair to me, so I agreed. 
 
 As a tech guy I could outmaneuver just about anyone's computer security posture, so as a rule I took digital privacy rather seriously. I never looked at her machine or phone unless asked to. Well, one evening she needed to run to the store for something and asked me to keep an eye on her laptop for a message about some ebay thing she was involved in. 
@@ -77,12 +85,14 @@ I printed out a bunch of evidence from her laptop, put the kids to bed, packed a
 
 
  9. Freedom
+     
 That was it. I was done. With everything. Divorced again. She was vengeful in court; it was quite ugly. I could afford the child support at this point, who cares. I focused on my career, and it showed. I went from a nobody at a nowhere department to working at the big names in RTP like Cisco, NetApp, and eventually SAS. Every step was a better title and better compensation. I never got that degree, but now I didn't need it. 
 
 Life was grand again.
 
 
 10. Alicia
+    
 I met Alicia after some of that. She checked all the boxes. I said I'd never father children again--no problem. She had never been married and had none of her own--awesome. My friends got along well with her, and she enjoyed what we did for fun. She was intelligent, educated, athletic, and beautiful. She had a career of her own in the medical field and came from well to do folks. We dated for three years. We broke up twice because she changed her mind about kids. I was about to take a job overseas after the second one and remembered how awful the television was in her apartment. I called her after I had sold just about everything else I owned and asked her if she wanted to meet for dinner one last time so I could give her mine, which was much nicer. 
 
 I'm such a sucker. 
@@ -97,10 +107,12 @@ For about a year, it did.
 
 
 11. 3rd Divorce
+    
 I considered getting a vasectomy behind her back. I wish I had. She got pregnant and every last thing I predicted happened. After a year of getting up for work, getting the baby to a sitter while she was still in bed, going back to the sitter for the baby, coming home to see her right where I left her, I had had enough. What's one more divorce at this point? She came after me not only for child support, but my retirement and alimony.
 
 
-12. Grace
+13. Grace
+    
 At this point I had very little to show for my life aside from my job at SAS. I thought I should at least try to reconnect with my older children. I found out that Stefany still lived in town with our kids and she had changed her name to Grace. I reached out to her indicating my intentions.
 
 She and the kids agreed, so we met. It was very emotional. The children were so happy to see me. We hugged, cried, and talked each others ears off. I felt like I had made the right decision for once.
@@ -115,6 +127,7 @@ If you thought I was a fool before, just wait.
 
 
 13. Betrayal
+
 
 COVID changed everything.
 
@@ -142,6 +155,7 @@ Then came artificial intelligence and it took what was left of the rug out from 
 
 
 14. Florida
+    
 Now came another opportunity. I sailed with my cousin from RI down the entire east coast and around the keys, up the gulf and back to Clearwater. It was several things, but it was a trial run to see if he and I could live together on a 44 foot Cat. 
 
 I should have stook with it, but it was too hard for me at this time to live with anyone else, even my beloved cousin.
@@ -150,6 +164,7 @@ I stayed in Florida for a few years and never made much of it other than fishing
 
 
 15. Knoxville
+    
 At the ends of my rope, I converted my van into something of an RV and drove to TN to restart things with my mother and step-father. I had some good engineering interviews at a few places, but they fell through. Again I was reduced to serving drinks and living out of my van in short order. 
 
 It was not a long term solution.
@@ -160,6 +175,7 @@ At this point I was sick of it all.
 
 
 16. The Legion
+    
 We have all been watching the news. Evil is for the third time in our lives trying to retake the world. I have nothing left to sacrifice but my honor. I have failed to be a family man, I have failed my career, I have failed to reclaim what I earned, my country only considers my mistakes giving no consideration to my deeds. When I look back all I see is darkness.
 
 Meanwhile, history is being made. I cannot just sit by and watch it on my phone or TV. Not after all my failed efforts.
