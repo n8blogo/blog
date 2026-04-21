@@ -1,0 +1,11 @@
+21APR2026
+
+Strange dreams all night. According to this graph, I was more awake than asleep. Three dreams, I remember. The first, as usual, was haunted by Stefany. I can usually wake myself from these dreams fairly quickly, and as far as the remnants of how this one felt, I did. The second was a dream about the arrival of my temporary room mate here at the base. Having just excercised some lucidity, I questioned whether I was dreaming or not from within the dream, but the dream just became more real. It was some ambiguously defined friend from the past, no one specific, and I was happy to see him. Somethink tipped me off eventually, I think it was the shape of the room, and I woke up. The third one I will not document, but it was nice. 
+
+Anyway, up at 0630 for formation. There was some confusion about where we were supposed to be, so I just stuck with the group. I thought my notes must have been wrong, but we ended up having it where I thought we would, eventually. PT for an hour then another quick formation to listen to the national anthem. I have no idea what they were saying (I suppose I should look that up), but it sounded inspiring. 
+
+Next was breakfast. Now look, I've done my fair share of barbaric camping, but a plate full of white rice and some whole cooked whitefish was not what my body wanted this morning. The instant coffee had a distinct aftertaste of tea as it was from the same vessel from yesterday. I should have brought so many things I left behind, but hot sauce is in the top ten. 
+
+Seeing as I'm such a useless prohpet, you should not be surprised that indeed I did receive a room mate later this day. Another coincidence, he's from the same country and has the same name as an ex-boyfriend of my sister. Apparently, not-quite-one-week journey here is nothing as his took 40 days, if I understood him correctly. I am envious of his gear. He has everything you would ever want as an infantryman, and I have blue jeans. I worry how much I'll be able to afford before getting to the line with which to supplement the standard issue stuff, whatever that ends up looking like. 
+
+I wonder what's for dinner. Lunch was actually pretty good, beef in gravy over rice. There was a side soupy thing that was red in color and sour in taste. The Columbians here are always happy to relieve me of my left overs, so it doesn't go to waste.
