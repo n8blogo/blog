@@ -8,8 +8,8 @@ Anyway, we took one of the shittiest vans you've ever seen a few blocks into tow
 
 I'm getting along well with the roomie. His English is at the Jackie Chan level from Rush Hour, which is at least serviceable unlike the Columbian squadron. Shockingly, my kitchen spanglish from Florida has been quite serviceable and I've even played translator between those two a few times. I laugh just thinking about it. I am told the rest of the "Englishers" should arrive here Friday. They better not make me squad leader just because I've been here the longest... 
 
-We're not supposed to eat in our dorm room, but we've snuck in so much food already I'm not sure where to hide tomorrow's haul. Dinner was good, if not warm--at least it wasn't whatever little weird fish they catch for us. 
+We're not supposed to eat in our dorm room, but we've snuck so many snacks in here already I'm not sure where to hide tomorrow's haul. Dinner was good, if not warm--at least it wasn't whatever little weird fish they catch for us. It's finally warmish and not raining today, so I got some liesure time outdoors after supper. I figured out this "base" used to be a hotel, probably 50-ish years ago. I bet it was pretty once.
 
-First night on firewatch tonight 0000-0100, which ain't bad. I'm going to try and squeeze in a wink before then.
+First night on firewatch tonight 0000-0100, which ain't bad. I'm going to try and squeeze in a wink before then. One of the sergeants is playing with a drone in the common room at the end of my haul. I guess I should get used to that sound, huh?
 
 EOF
